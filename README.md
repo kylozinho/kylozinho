@@ -8,4 +8,4 @@ Get to know me! -> https://kylozinho.carrd.co/
 - Languages & Programs I've used: Python, C++, Arduino IDE
 
 
-I look forward to connecting with like-minded individuals who share a passion for STEM and social justice. Feel free to reach out to discuss opportunities for collaboration, activism, education, or to exchange ideas! |📫 htsilva@uchicago.edu
+I look forward to connecting with like-minded individuals who share a passion for STEM and social justice. Feel free to reach out to discuss opportunities for collaboration, activism, education, or to exchange ideas! |📫 htsilva@uchicago.edu or https://www.linkedin.com/in/htsilva/
